@@ -1,4 +1,4 @@
-# Status: `🔍 Em busca de oportunidades de Estágio em TI` - Atualizado: 2026
+# Status: `🔍 Em busca de oportunidades de Estágio em TI` - Atualizado: 03/2026
 ## Nome: Bruno Nunez
 
 ## Profissional em Transição/Complementação de Carreira
